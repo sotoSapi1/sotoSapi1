@@ -1,1 +1,1 @@
-Java, Lua, cs and cpp programmer cuz yes
+Java, Lua and c# programmer cuz yes
